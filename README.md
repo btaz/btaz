@@ -1,0 +1,1 @@
+I’m a curious problem solver. I’m a software engineer in heart and soul and I’m intrigued by technology and how it can be applied to find new ways of solving problems. I’m an avid reader and constantly reading about something. I’m interested in everything and an autodidact. I collect factoids for fun.
